@@ -1,2 +1,2 @@
 :) halo disini masih kosong ya.
-coding manual dong, jangan copy paste saja :p
+coding manual yuk, jangan copy paste saja :p
